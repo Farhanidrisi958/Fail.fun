@@ -1,0 +1,2 @@
+# Fail.fun
+Spend money 
